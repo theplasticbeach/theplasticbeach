@@ -1,6 +1,6 @@
 
     
-　　　　　　　　　　　　　 　　　　　 　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=theplasticbeach&color=fd9739&style=plastic&label=　｡)   
+　　　　　　　　　　　　　 　　　　　 　　　　　　　　　![](https://komarev.com/ghpvc/?username=theplasticbeach&color=fd9739&style=plastic&label=　｡)   
 <h6 align="center">
 <a href="https://rentry.co/carpto">rentry</a>   ✦.   <a href="https://guineapirate.atabook.org/">‎‎新book</a>
 
