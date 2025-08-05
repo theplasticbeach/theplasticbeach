@@ -2,7 +2,7 @@
 <div align="center">
     
 
-<img align="left" width="50%" src="https://files.catbox.moe/q3k225.png">
+<img align="left" width="60%" src="https://files.catbox.moe/q3k225.png">
 
 <h6 align>
 "To Binge - Gorillaz"
