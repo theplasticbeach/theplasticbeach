@@ -1,11 +1,29 @@
-    
-　　　　　　　　　　　　　 　　　　　 　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=theplasticbeach&color=6a83bd&style=plastic&label=　｡)   
 
-<p align="center"> 
-    <img src="https://files.catbox.moe/m7bvv1.webp"/>
-<h6 align="center">
-<a href="https://rentry.co/carpto">rentry</a>   ✦.   <a href="https://guineapirate.atabook.org/">‎‎新book</a>
+<div align="center">
     
+
+<img align="left" width="50%" src="https://files.catbox.moe/q3k225.png">
+
+<h6 align>
+"To Binge - Gorillaz"
+    
+all art belongs to [@StupotPie](https://x.com/StupotPie)
+
+![](https://komarev.com/ghpvc/?username=theplasticbeach&color=807784&style=plastic&label=📉𓃉)
+
+
+### ✦ LINKS 　*(¬_¬")* 
+
+
+<h6 align>
+<a href="https://rentry.co/carpto" target="_blank">RENTRY​</a>　　<a href="https://guineapirate.atabook.org" target="_blank">新BOOK</a>　
+
+
 　
-<p align="center"> 
-    <img src="https://files.catbox.moe/1jhtkf.webp"/> <img src="https://files.catbox.moe/12retw.webp"/>
+<p align> <small>
+rentry is 4 info 　.　.　W2I / sign ata
+    
+c+h only for friendlist, unless stated otherwise
+
+more links soon... (maybe)
+    
