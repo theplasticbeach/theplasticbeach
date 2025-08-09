@@ -25,5 +25,4 @@ rentry is 4 info 　.　.　W2I / sign ata
     
 c+h only for friendlist, unless stated otherwise
 
-more links soon... (maybe)
-    
+
