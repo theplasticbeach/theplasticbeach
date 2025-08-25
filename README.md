@@ -16,7 +16,7 @@ all art belongs to [@StupotPie](https://x.com/StupotPie)
 
 
 <h6 align>
-<a href="https://rentry.co/carpto" target="_blank">RENTRY​</a>　　<a href="https://guineapirate.atabook.org" target="_blank">新BOOK</a>　
+<a href="https://rentry.co/carpto" target="_blank">RENTRY​</a>　　<a href="https://guineapirate.atabook.org" target="_blank">新BOOK</a>　　<a href="https://tobinges.straw.page/" target="_blank">STRAW</a>　
 
 
 　
