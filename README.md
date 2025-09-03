@@ -12,7 +12,7 @@ all art belongs to [@StupotPie](https://x.com/StupotPie)
 ![](https://komarev.com/ghpvc/?username=theplasticbeach&color=807784&style=plastic&label=📈𓃉)
 
 
-### ✦ LINKS 　*(¬_¬")* 
+### ✦ LINKS 　━━━╋━ ‎ 
 
 
 <h6 align>
