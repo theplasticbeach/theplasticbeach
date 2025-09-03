@@ -2,14 +2,16 @@
 <div align="center">
     
 
-<img align="left" width="60%" src="https://files.catbox.moe/q3k225.png">
+<img align="left" width="60%" src="https://files.catbox.moe/ndnwgp.png">
 
+
+　
 <h6 align>
 "To Binge - Gorillaz"
     
 all art belongs to [@StupotPie](https://x.com/StupotPie)
 
-![](https://komarev.com/ghpvc/?username=theplasticbeach&color=807784&style=plastic&label=📉𓃉)
+![](https://komarev.com/ghpvc/?username=theplasticbeach&color=807784&style=plastic&label=📈𓃉)
 
 
 ### ✦ LINKS 　*(¬_¬")* 
