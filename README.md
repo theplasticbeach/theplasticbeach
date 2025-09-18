@@ -5,7 +5,6 @@
 <img align="left" width="60%" src="https://files.catbox.moe/ndnwgp.png">
 　
 <h6 align>
-"To Binge - Gorillaz"
     
 all art belongs to [@StupotPie](https://x.com/StupotPie)
 
