@@ -2,9 +2,8 @@
 <div align="center">
     
 
-<img align="left" width="60%" src="https://files.catbox.moe/ndnwgp.png">
-　
-<h6 align>
+<img align="left" width="60%" src="https://files.catbox.moe/ndnwgp.png">　
+<h6 align>   
     
 all art belongs to [@StupotPie](https://x.com/StupotPie)
 
@@ -24,4 +23,5 @@ rentry is 4 info 　.　.　W2I / sign ata
     
 c+h only for friendlist, unless stated otherwise
 
+<img src="https://files.catbox.moe/dye9er.png">　
 
