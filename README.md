@@ -1,10 +1,10 @@
-<h6 align>   
-    
-all art belongs to [@StupotPie](https://x.com/StupotPie)
-
 <div align="center">
     
 <img align="left" width="55%" src="https://files.catbox.moe/ndnwgp.png">　
+
+<h6 align>   
+    
+all art belongs to [@StupotPie](https://x.com/StupotPie)
 
 ![](https://komarev.com/ghpvc/?username=theplasticbeach&color=807784&style=plastic&label=📈𓃉)
 
