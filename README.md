@@ -2,8 +2,7 @@
 <div align="center">
     
 
-<img align="left" width="50%" src="https://files.catbox.moe/ndnwgp.png">　
-    
+<img align="left" width="55%" src="https://files.catbox.moe/ndnwgp.png">　
 <h6 align>   
     
 all art belongs to [@StupotPie](https://x.com/StupotPie)
