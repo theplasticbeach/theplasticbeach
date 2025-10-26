@@ -1,6 +1,6 @@
 <div align="center">
     
-<img align="left" width="55%" src="https://files.catbox.moe/bf3e7l.png">　
+<img align="left" width="55%" src="https://files.catbox.moe/cd83ha.png">　
 
 <h6 align>   
     
