@@ -17,6 +17,6 @@ links⠀⠀↓
 
     
 ⠀⠀⠀
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31d67zj3sfoiosm7lq4birxgvriy&cover_image=true&theme=novatorem&show_offline=false&background_color=fdf5e8&interchange=false&profanity=false&bar_color=8db1a7&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31d67zj3sfoiosm7lq4birxgvriy&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=8db1a7&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
