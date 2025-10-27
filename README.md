@@ -12,7 +12,7 @@ all art belongs to [@StupotPie](https://x.com/StupotPie)
 links⠀⠀↓
 
 <h6 align>
-<a href="https://rentry.co/phase6murdoc" target="_blank">RENTRY​</a>　　<a href="https://guineapirate.atabook.org" target="_blank">新BOOK</a>　　<a href="https://phase6murdoc.straw.page/" target="_blank">STRAW</a>　　<a href="https://pronouns.cc/@theplasticbeach" target="_blank">PRNS​</a>
+<a href="https://rentry.co/phase6murdoc" target="_blank">RENTRY​</a>　　<a href="https://notgonnaflipoff.atabook.org" target="_blank">新BOOK</a>　　<a href="https://phase6murdoc.straw.page/" target="_blank">STRAW</a>　　<a href="https://pronouns.cc/@theplasticbeach" target="_blank">PRNS​</a>
 
 
     
