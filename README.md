@@ -6,7 +6,7 @@
 ‎ 
 
 ‎ 
-‎ ![](https://komarev.com/ghpvc/?username=theplasticbeach&color=807784&style=plastic&label=📈𓃉)
+‎ ![](https://komarev.com/ghpvc/?username=theplasticbeach&color=5a5a5a&style=plastic&label=❔　)
 ‎ 
 ‎ 
 <div align="center">
